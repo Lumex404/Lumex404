@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Lumex404
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning MC stuff
+- 🌱 I’m currently learning Finance
 - 📫 You can reach me on Discord #Lumex0001
